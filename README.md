@@ -12,3 +12,6 @@ Dolphins background
 News Article Example
 The Splash Zone 4/3/23: Cedrick Wilson on the trade block
 https://www.thephinsider.com/the-splash-zone-miami-dolphins-news/2023/4/3/23665898/the-splash-zone-4-3-23-cedrick-wilson-on-the-trade-block-miami-dolphins-braxton-berrios-tyreek-hill
+
+More Miami Dolphins News Ideas
+https://www.espn.com/nfl/team/_/name/mia/miami-dolphins
