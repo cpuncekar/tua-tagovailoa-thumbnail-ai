@@ -16,3 +16,6 @@ https://www.thephinsider.com/the-splash-zone-miami-dolphins-news/2023/4/3/236658
 
 More Miami Dolphins News Ideas
 https://www.espn.com/nfl/team/_/name/mia/miami-dolphins
+
+More Phinsider Articles ( Main Site )
+https://www.thephinsider.com/
