@@ -1,6 +1,7 @@
 # tua-tagovailoa-thumbnail-ai
 Tua Tagovailoa Thumbnail for Wordpress Site
 
+New idea use Tua in Midjourney and create a killer thumbnail for Wordpress site.
 tua tagovailoa thumbnail for wordpress blog site
 
 Dolphins background
