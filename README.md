@@ -25,3 +25,6 @@ https://www.thephinsider.com/
 NFL Draft April 27th
 
 Created some characture covers in Midjourney
+
+
+Promotion or Feed showing Jalen Ramsey on injury
