@@ -10,7 +10,7 @@ Dolphins background
 - https://lexica.art/prompt/de6b3818-cbf9-4a20-89bc-be08763d7ddf
 - https://lexica.art/prompt/53f586a1-9b37-4b17-a7d3-f05a0751349e
 - https://lexica.art/prompt/85d472e5-7cb7-48fe-a66f-9b0d73a1dd03
-
+- https://lexica.art/prompt/85d472e5-7cb7-48fe-a66f-9b0d73a1dd03
 
 News Article Example
 The Splash Zone 4/3/23: Cedrick Wilson on the trade block
