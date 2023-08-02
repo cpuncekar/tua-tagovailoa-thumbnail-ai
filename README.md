@@ -21,6 +21,7 @@ https://www.espn.com/nfl/team/_/name/mia/miami-dolphins
 
 More Phinsider Articles ( Main Site )
 https://www.thephinsider.com/
+https://www.thephinsider.com/
 
 NFL Draft April 27th
 
